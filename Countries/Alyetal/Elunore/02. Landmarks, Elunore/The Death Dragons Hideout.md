@@ -1,0 +1,1 @@
+The shipwreck of a large galleon that the divine dragon of death made their home in. It is here that the psychopomps of Magor lead the souls of the dead, and from here that the dragon makes its daily transit to bring the dead to the afterlife.

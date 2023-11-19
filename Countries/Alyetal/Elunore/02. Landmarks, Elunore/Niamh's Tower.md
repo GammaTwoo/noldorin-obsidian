@@ -1,0 +1,1 @@
+The tower of the ancient wizard, Niamh. Now crumbled to ruins, Niamh's tower has been picked clean of anything valuable long ago by scavengers.

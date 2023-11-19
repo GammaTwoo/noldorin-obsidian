@@ -1,0 +1,1 @@
+Ravaged by the Great War, the Lavalfait wood is a shadow of its former self. Reduced to charcoal and ash, the forest people that were forced to relocate still mourn the loss of this great sancutary.

@@ -1,0 +1,1 @@
+The Dranoor Crevasses are a byproduct of the split tectonic plates under Alyetal. This region is incredibly prone to earthquakes and sinkholes, and some days the rumbling doesnt ever seem to stop.

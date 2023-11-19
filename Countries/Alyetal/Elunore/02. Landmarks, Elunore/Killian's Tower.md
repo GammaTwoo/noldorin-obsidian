@@ -1,1 +1,1 @@
-Located deep within [[The Blackwood Cursed Forest]], Killian's tower
+Located deep within [[The Blackwood Cursed Forest]], Killian's tower guards the [[Mirasilv Magnolicae]], and contains his base of operations and the results/findings of all his personal studies.

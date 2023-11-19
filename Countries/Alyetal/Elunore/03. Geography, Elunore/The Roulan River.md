@@ -1,0 +1,1 @@
+The Roulan is the name for the two sister rivers that flow from [[Lake Nora]]. The North Roulan flows past what was once the Lavalfait Wood, and the South Roulan flows past Kahg Dural. It is said that swimming in the waters of the Roulan brings good luck, as you are bathing in the waters that escaped death.

@@ -1,0 +1,1 @@
+Named after the powerful Druid/Wizard that once made their home here, half of the Neevan forest was decimated by the Great War. The forest itself is nothing special, but a strange, old magic still permeates it.

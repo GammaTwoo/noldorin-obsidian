@@ -1,0 +1,1 @@
+The home of Erladden, the god of Nature. The Salisraine woodland is an old growth forest that is quite friendly to those that pass through it. It is understood that you must respect the forest and not overstay your welcome.

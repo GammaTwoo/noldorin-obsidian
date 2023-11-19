@@ -1,0 +1,1 @@
+The River of Radiance Indigo is what defines the western border of [[Sweden]] and Alyetal. Gargantuan, vibrant blue fish swim through here, and Lesser Ila'yerian Blue gives the water a deep blue hue. Locals believe the fish to be children of the River God. Whether thats true or not is not known.

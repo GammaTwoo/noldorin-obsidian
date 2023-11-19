@@ -1,0 +1,1 @@
+The namesake of the Crater City itself, [[Norakkumi]], Lake Nora is home to [[The Death Dragons Hideout]], and is the source for both ends of the Roulan River. Lake Nora is on the far west end of Noldorin, fed by the watershed from the [[Rhuidhen]].

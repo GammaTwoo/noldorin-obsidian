@@ -1,0 +1,1 @@
+The mountains in the south of Alyetal. They get their name from a commonization of an old Giant word for Thunder. Of course the storm giants are no longer around, but the Thunrian Summits and [[The Tempest Crags]] comprise the Crescent of Storms. It is in [[Etherhym]], in the north of the Thunrian, that [[Xet Syn]] makes their home.

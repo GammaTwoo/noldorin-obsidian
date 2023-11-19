@@ -1,0 +1,1 @@
+The keep of the adopted children of Niamh. It's been a long time since the keep was standing tall, but some of the magic wards are still up and functional.
