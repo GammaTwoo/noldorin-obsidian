@@ -1,0 +1,1 @@
+A pool design to amplify inherent magic in those who meditate on the singing stone in the center. Can have disastrous effects if the user does not have control over their own magic.

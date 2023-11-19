@@ -1,0 +1,1 @@
+A fort-town established by Alyetal when word first came that Htuulotan would be staging an attack on their nation. It was a big surprise when the armies of Htuulotan came through the mountains.

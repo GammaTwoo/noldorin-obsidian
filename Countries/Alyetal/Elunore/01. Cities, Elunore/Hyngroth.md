@@ -1,0 +1,1 @@
+Hyngroth is the sister city to [[Nystelond]], on [[The River of Radiance Indigo]]. Hyngroth is the center of trade between [[Alyetal]] and [[Sweden]]. Currently, Hyngroth is where most of the troops entering the great war are trained.

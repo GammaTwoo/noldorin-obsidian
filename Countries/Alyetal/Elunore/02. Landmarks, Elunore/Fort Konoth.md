@@ -1,0 +1,1 @@
+A fort constructed by Htuulotan on the front of the Great War. Htuulotan was more worried about being flanked than defending the center of the front. Fort Konoth is the weaker of the two forts, but has more wards and other powerful magic in place to keep it viable as a center of operations for Htuulotan.

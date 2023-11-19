@@ -1,0 +1,1 @@
+Kehone is the center of naval travel, exploration, and training in Alyetal. It is here that the navy of Alyetal operates from, and here where most sea trade occurs.

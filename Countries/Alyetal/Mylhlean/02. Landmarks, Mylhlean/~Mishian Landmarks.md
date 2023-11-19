@@ -1,0 +1,5 @@
+[[The Calming Gate]]
+[[The Faery Circle]]
+[[The Fountain of Immortality]]
+[[The Temple to Kadhorhuil]]
+[[The Temple to Nordiir]]

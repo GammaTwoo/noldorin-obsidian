@@ -1,0 +1,1 @@
+Fort Thalore sits at the front of the Great War, defending [[The Menathas Sky Tree & The Temple to Laelithar]], and Alyetal as a whole. It sits in the center of the front, with a line of watchtowers extending every mile or so from the mountains in [[The Neevan Forest]] to the coast.

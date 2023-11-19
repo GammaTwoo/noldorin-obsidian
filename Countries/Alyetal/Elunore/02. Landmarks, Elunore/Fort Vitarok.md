@@ -1,0 +1,1 @@
+Fort Vitarok is the stronger of the two forts on the Htuulotan front. Fort Vitarok has naval and marshal capabilies, as well as powerful spellcasters.

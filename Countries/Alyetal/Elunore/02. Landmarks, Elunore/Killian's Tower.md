@@ -1,0 +1,1 @@
+Located deep within [[The Blackwood Cursed Forest]], Killian's tower

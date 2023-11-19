@@ -1,0 +1,1 @@
+Norakkumi had its start as a mining town, and became incredibly wealthy incredibly fast due to the abundant metals that were unearthed by Norakkumi's crystal meteor. The meteor itself is unbreakable and too immensly heavy to move, and an Old King decreed that none shall mine towards it lest they be cursed, but the pieces that fall off are immensly valuable for spellcasting foci.
