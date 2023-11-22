@@ -1,0 +1,1 @@
+Nytselond is the hub of trade between Alyetal and Sweden. Most traffic between the neighboring nations goes through this city and its sister city on the other side of the river. Nytselond is an incredibly wealthy place, but corruption plagues its upper echelon.

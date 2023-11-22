@@ -1,0 +1,1 @@
+The Plysard contains [[Kuhhava]], as well as [[The Blackvine Ruins]], [[The Plate-Back Stonedrake]], and [[The Dread Caverns]]. There are two fruit trees endemic to the Plysard, [[Fae Cherry]] and [[Flambrae]].

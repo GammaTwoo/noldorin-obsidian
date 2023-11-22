@@ -1,0 +1,1 @@
+The fortified city of Sunderheim was the first landing place of the Far Peoples, back when it was still named Sylna Alora. They razed the city and their magic split a ravine into the city. After multiple destructions and rebuildings of the city, it was renamed to Sunderheim (given the crater and its impenaterable defenses).

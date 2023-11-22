@@ -1,0 +1,1 @@
+Kuhhava is a run-of-the-mill town just outside the Plysard forest in Sweden. Kuhhava makes a lot of money selling the various fruits found in the Plysard to the rest of the world, and although minor, the [[The Plate-Back Stonedrake]] draws tourism from all of Noldorin.

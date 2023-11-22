@@ -1,0 +1,1 @@
+A city located on the banks of lake Pengrada, both major and minor. The city draws its power from the reverse waterfall that connects these two lakes. The cities Shaeras are large centers of education and magic within Noldorin. Many would kill to live here and to study under the old masters. Shesa Shaeras is the sister city to [[Thye Shaeras]].

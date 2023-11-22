@@ -1,0 +1,1 @@
+The Dread Caverns are a network of caverns under Sweden. Largely unremarkable, no one really sees it worth exploring, other than curious kids or perhaps a bored adult. There does happen to be an entrance to the underdark hidden in this cave, down a sinkhole miles into the cave. In addition to this, a portal to the Feywild, behind a tight squeeze that most cant get through. 

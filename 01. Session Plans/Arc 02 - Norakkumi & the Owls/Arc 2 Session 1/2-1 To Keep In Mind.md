@@ -1,0 +1,7 @@
+ - They'll probably want to explore the city
+ - NO USELESS ROLLS
+ - Dont have consequences for something that wasnt roleplayed
+ - Atticus Paranoia
+	 - Itll happen when its the most interesting time for it to happen
+- Describe everything in your mind
+- Trust your improv

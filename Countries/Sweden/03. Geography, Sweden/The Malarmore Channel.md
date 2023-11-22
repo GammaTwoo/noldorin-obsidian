@@ -1,0 +1,1 @@
+Flowing from [[Lake Pengrada]], the Malarmore Channel is the Eastern border between Alyetal and Sweden.

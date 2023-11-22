@@ -1,0 +1,1 @@
+The exposed fossil of a stegosaurus. Those that initially found it believed it to be the remains of a drake, and named it as such. It was turned into a tourist attraction, based in Kuhhava.
